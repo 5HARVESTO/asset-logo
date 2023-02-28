@@ -1,0 +1,2 @@
+# asset-logo
+OFFICIAL LOGO 5HARVEST0
